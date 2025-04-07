@@ -17,7 +17,7 @@
 - **1 tablespoon** olive oil
 - **Salt and pepper** to taste
 - **1 teaspoon** dried oregano or Italian seasoning
-- **Fresh basil** for garnish (optional)
+- **Fresh basil or cilantro** for garnish (optional)
 
 
 ## Instructions
